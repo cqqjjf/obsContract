@@ -1,1 +1,1 @@
-# obsContract
+https://obstoken.io
